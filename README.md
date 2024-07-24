@@ -6,9 +6,9 @@
 
 - 🔭 I’m currently working on **Machine Learning & Data Science**
 
-- 🌱 I’m currently learning **Machine Learning, Deep Learning, Generative AI,**
+- 🌱 I’m currently learning **Machine Learning, Deep Learning, Generative AI**
 
-- 💬 Ask me about **Data Science Enthusiast**
+- 💬 Ask me about **Machine Learning, Data Science**
 
 - 📫 How to reach me **sriramdharnish@gmail.com**
 

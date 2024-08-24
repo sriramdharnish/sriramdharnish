@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sriramdharnish@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Bvv-NdK6Pb9tKC8AlP08bYTyt1EVWhev/view?usp=drive_link](https://drive.google.com/file/d/1Bvv-NdK6Pb9tKC8AlP08bYTyt1EVWhev/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1deQastEunkqsbVVlsfxsVsR8cs9HITNt/view?usp=drive_link](https://drive.google.com/file/d/1deQastEunkqsbVVlsfxsVsR8cs9HITNt/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
